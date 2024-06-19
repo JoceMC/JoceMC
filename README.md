@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @JoceMC
+- 👀 I’m interested in making cake.
+- 🌱 I’m currently learning you.
+- 💞️ I’m looking to collaborate on flirting with you.
+- 📫 How to reach me UwU!
+- 😄 Pronouns: you/me meant to be!
+- ⚡ Fun fact: I miss you!
